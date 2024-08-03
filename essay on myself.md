@@ -7,3 +7,5 @@
 2. I want to work in robotics as a physicist & also in artificial intelligence development.
 
 3. I'm 22 years old and have graduated from public university in Physics.
+
+4. I'm passionate about playing & seeking football. I've won many titles in my college & university levels.Football gives me strength when I'm tied.
